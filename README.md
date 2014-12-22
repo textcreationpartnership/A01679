@@ -35,32 +35,42 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The order of equalitie Contriued and diuulged as a generall directorie for common sessements. Seruin
+
+1. TO ALL IVDICIALL
+and indifferent Readers.
+
+1. THE CONTENTS OR
+cheife heads handled in this Treatiſe, as the ſame are
+diſtributed into 12. Chapters.
+
 #####Body#####
 
-1. CHAP. 1.
+1. THE ORDER OF
+Equalitie.
 
-1. Chap. 2.
+    _ CHAP. 1.
 
-1. Chap. 3.
+    _ Chap. 2.
 
-1. Chap. 4.
+    _ Chap. 3.
 
-1. Chap. 5.
+    _ Chap. 4.
 
-1. Chap. 6.
+    _ Chap. 5.
 
-1. Chap. 7.
+    _ Chap. 6.
 
-1. Chap. 8.
+    _ Chap. 7.
 
-1. Chap. 9.
+    _ Chap. 8.
 
-1. Chap. 10.
+    _ Chap. 9.
 
-1. Chap. 11.
+    _ Chap. 10.
 
-1. Chap. 12.
+    _ Chap. 11.
+
+    _ Chap. 12.
 
 **Types of content**
 
